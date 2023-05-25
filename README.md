@@ -1,4 +1,4 @@
-# Hi! I am Himanabendra👋🏻🤝
+# Hi! I am Manabendra👋🏻🤝
 
 ![full stack](https://github.com/mananabendra/manabendra/assets/120209174/bc666daf-94c2-4112-9871-751498a92dfb)
 
